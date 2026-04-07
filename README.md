@@ -4,6 +4,7 @@ Khung H1
 Trên khung thời gian H1, giá dầu hiện đang đối mặt với vùng kháng cự quan trọng quanh mốc 101 USD. Trong phiên gần nhấ
 t, xuất hiện một cây nến có râu trên dài, cho thấy lực bán áp đảo khi giá tiếp cận khu vực này. Đáng chú ý, vùng 101 USD đã nhiều 
 lần kiểm định và bị từ chối (khoảng 4 lần), củng cố vai trò là kháng cự mạnh trong ngắn hạn.
+
 Ở chiều ngược lại, khu vực phía dưới đang hình thành vùng hỗ trợ đáng tin cậy, nơi giá thường xuyên bật tăng trở lại mỗi k
 hi chạm tới. Bên cạnh đó, đường EMA 200 trên khung H1 cũng đang đóng vai trò nâng đỡ xu hướng, giúp duy trì cấu trúc giá trong ngắn hạn.
 Về kịch bản, khả năng cao giá sẽ có nhịp hồi phục kỹ thuật hướng lên các mức Fibonacci quan trọng. Tuy nhiên, khi quan sá
