@@ -1,7 +1,12 @@
 Phân tích giá dầu ngày 20/3
 Khung H1Phân tích giá dầu ngày 20/3
 Khung H1
+Phân tích giá dầu ngày 20/3
+Khung H1Phân tích giá dầu ngày 20/3
+Khung H1
 
+Trên khung thời gian H1, giá dầu hiện đang đối mặt với vùng kháng cự quan trọng quanh mốc 101 USD. Trong phiên gần nhấ
+t, xuất hiện một cây nến có râu trên dài, cho thấy lực bán áp đảo khi giá tiếp cận khu vực này. Đáng chú ý, vùng 101 USD đã nhiều 
 Trên khung thời gian H1, giá dầu hiện đang đối mặt với vùng kháng cự quan trọng quanh mốc 101 USD. Trong phiên gần nhấ
 t, xuất hiện một cây nến có râu trên dài, cho thấy lực bán áp đảo khi giá tiếp cận khu vực này. Đáng chú ý, vùng 101 USD đã nhiều 
 lần kiểm định và bị từ chối (khoảng 4 lần), củng cố vai trò là kháng cự mạnh trong ngắn hạn.
