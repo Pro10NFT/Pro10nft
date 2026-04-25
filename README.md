@@ -10,6 +10,7 @@ t, xuất hiện một cây nến có râu trên dài, cho thấy lực bán áp
 
 Trên khung thời gian H1, giá dầu hiện đang đối mặt với vùng kháng cự quan trọng quanh mốc 101 USD. Trong phiên gần nhấ
 
+
 Phân tích giá dầu ngày 20/3
 Khung H1Phân tích giá dầu ngày 20/3
 Khung H1
